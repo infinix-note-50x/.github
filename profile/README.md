@@ -1,7 +1,7 @@
 # Infinix Note 50X - Full Specifications, Features, Price, and Launch Date
 
 ## Infinix Note 50X
-The Infinix Note 50X is a mid-range smartphone designed to deliver an exceptional user experience with its advanced features and affordable price point. It boasts a stunning display, robust performance, and innovative AI-driven functionalities, making it a strong contender in the competitive smartphone market. Whether you're looking for a device for work, entertainment, or capturing memories, the Infinix Note 50X has something to offer.
+Infinix Note 50X is a mid-range smartphone designed to deliver an exceptional user experience with its advanced features and affordable price point. It boasts a stunning display, robust performance, and innovative AI-driven functionalities, making it a strong contender in the competitive smartphone market. Whether you're looking for a device for work, entertainment, or capturing memories, the Infinix Note 50X has something to offer.
 
 ## Infinix Note 50X Key Features
 
